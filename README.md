@@ -1,4 +1,4 @@
-BestBuy is one of the largest consumer electronics retailers in the US known for its huge selection of tech products. A <a href="https://zipprr.com/best-buy-clone/">BestBuy clone</a> helps entrepreneurs launch an online store replicating BestBuy's core experience for tech enthusiasts.
+BestBuy is one of the largest consumer electronics retailers in the US known for its huge selection of tech products. A <a href="https://zipprr.com/best-buy-clone/">Best Buy clone</a> helps entrepreneurs launch an online store replicating BestBuy's core experience for tech enthusiasts.
 
 Essentially, a BestBuy clone is a customizable multi-vendor ecommerce solution that provides the key elements of BestBuy like extensive product catalogs in electronics, simple navigation features, multiple payment options, and an engaging shopper experience on desktop and mobile - in a ready-to-deploy platform.
 
